@@ -1,1 +1,1 @@
-![I'm happy](007.gif)
+![I'm happy](AL1S.png)
